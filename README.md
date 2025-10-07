@@ -1,5 +1,3 @@
-# Wip1
-
 <div align="center">
 <img width="1162" height="1074" alt="image" src="https://github.com/user-attachments/assets/ece1d01d-25b4-4bda-98d7-a22c55b048a2" />
 
@@ -8,6 +6,8 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31374auufhmdwvnklou5a3aykoa4&cover_image=true&theme=novatorem&show_offline=false&background_color=750000&interchange=false&profanity=false&bar_color=b30000&bar_color_cover=false">
   </a>
 </p>
+
+# Gifs/Images may break
 
 ![strider](https://i.ibb.co/6cBhqB5C/tumblr-be947ee4868a11c47603ea359cecd70d-fc948f4d-75.webp)  ![](https://komarev.com/ghpvc/?username=Davestridersjuice&Style=plastic&label="Because+I+love+him."&color=8B0000) ![strider](https://i.ibb.co/6cBhqB5C/tumblr-be947ee4868a11c47603ea359cecd70d-fc948f4d-75.webp) 
 
