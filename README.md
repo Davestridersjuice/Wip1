@@ -21,7 +21,9 @@ ${\textsf{\color{#FF0000} Im pansexual, asexual, genderfluid, and a minor}}$ <br
 
 ${\textsf{\color{#FF0000} I only follow friends on this account}}$ 
 
-![appl](https://i.ibb.co/Bhp06nJ/tumblr-d563e0636285b3919ed8b477d9bbdcac-54f9afa9-75.webp)${\textsf{\color{#FF0000} Discord - Davestridersjuice}}$ ![appl](https://i.ibb.co/Bhp06nJ/tumblr-d563e0636285b3919ed8b477d9bbdcac-54f9afa9-75.webp)
+![appl](https://i.ibb.co/Bhp06nJ/tumblr-d563e0636285b3919ed8b477d9bbdcac-54f9afa9-75.webp)
+${\textsf{\color{#FF0000} Discord - Davestridersjuice}}$
+![appl](https://i.ibb.co/Bhp06nJ/tumblr-d563e0636285b3919ed8b477d9bbdcac-54f9afa9-75.webp)
 
 ${\textsf{\color{#FF0000} Did I mention I liked Dave Strider?}}$ </br>
 
@@ -30,7 +32,10 @@ ${\textsf{\color{#FF0000} Did I mention I liked Dave Strider?}}$ </br>
 
 ${\textsf{\color{#FF0000} Dave themed pixels >>}}$ </br>
 
-![time](https://i.ibb.co/vCMZKR4Z/tumblr-a9d3ce93f7e3ce3d895a4f4906308be2-9f51be91-250.webp) <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/be2ac19a-a0a8-4303-bf2d-3ec2cd7106a5" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/957e29f6-ada0-4fc6-832a-fe7749fd8b09" /> ![strida](https://i.ibb.co/cSG6QdP8/tumblr-6247fba3d20b16142ac60e1d93c9713c-17a202d3-250.webp) </br>
+![time](https://i.ibb.co/vCMZKR4Z/tumblr-a9d3ce93f7e3ce3d895a4f4906308be2-9f51be91-250.webp) 
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/be2ac19a-a0a8-4303-bf2d-3ec2cd7106a5" /> 
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/957e29f6-ada0-4fc6-832a-fe7749fd8b09"/> 
+![strida](https://i.ibb.co/cSG6QdP8/tumblr-6247fba3d20b16142ac60e1d93c9713c-17a202d3-250.webp) </br>
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/393294a3-60b5-4cad-b505-33ce05ee0d55" /> 
 
 
