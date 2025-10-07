@@ -1,6 +1,11 @@
 <div align="center">
 <img width="1162" height="1074" alt="image" src="https://github.com/user-attachments/assets/ece1d01d-25b4-4bda-98d7-a22c55b048a2" />
 
+[Ata](https://chickenbootyweezer.atabook.org/)
+[Pinterest](https://www.pinterest.com/Davestridersjuice/) 
+[Roblox](https://www.roblox.com/users/3939267694/profile) 
+[Spotify](https://open.spotify.com/user/31374auufhmdwvnklou5a3aykoa4?si=fc4de630f88a49cf) 
+
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31374auufhmdwvnklou5a3aykoa4&cover_image=true&theme=novatorem&show_offline=false&background_color=750000&interchange=false&profanity=false&bar_color=b30000&bar_color_cover=false">
@@ -36,7 +41,7 @@ ${\textsf{\color{#FF0000} Dave themed pixels >>}}$ </br>
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/be2ac19a-a0a8-4303-bf2d-3ec2cd7106a5" /> 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/957e29f6-ada0-4fc6-832a-fe7749fd8b09"/> 
 ![strida](https://i.ibb.co/cSG6QdP8/tumblr-6247fba3d20b16142ac60e1d93c9713c-17a202d3-250.webp) </br>
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/393294a3-60b5-4cad-b505-33ce05ee0d55" /> 
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/393294a3-60b5-4cad-b505-33ce05ee0d55" />
 
 
 
