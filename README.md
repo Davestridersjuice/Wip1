@@ -9,7 +9,9 @@
 
 # Gifs/Images may break
 
-![strider](https://i.ibb.co/6cBhqB5C/tumblr-be947ee4868a11c47603ea359cecd70d-fc948f4d-75.webp)  ![](https://komarev.com/ghpvc/?username=Davestridersjuice&Style=plastic&label="Because+I+love+him."&color=8B0000) ![strider](https://i.ibb.co/6cBhqB5C/tumblr-be947ee4868a11c47603ea359cecd70d-fc948f4d-75.webp) 
+![strider](https://i.ibb.co/6cBhqB5C/tumblr-be947ee4868a11c47603ea359cecd70d-fc948f4d-75.webp)
+![](https://komarev.com/ghpvc/?username=Davestridersjuice&Style=plastic&label="Because+I+love+him."&color=8B0000) 
+![strider](https://i.ibb.co/6cBhqB5C/tumblr-be947ee4868a11c47603ea359cecd70d-fc948f4d-75.webp) 
 
 ${\textsf{\color{#FF0000} Hey}}$ 
 
