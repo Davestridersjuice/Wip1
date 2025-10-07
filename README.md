@@ -9,19 +9,22 @@
   </a>
 </p>
 
-![](https://komarev.com/ghpvc/?username=Davestridersjuice&Style=plastic&label="Because+I+love+him."&color=8B0000)
+![strider](https://i.ibb.co/6cBhqB5C/tumblr-be947ee4868a11c47603ea359cecd70d-fc948f4d-75.webp)  ![](https://komarev.com/ghpvc/?username=Davestridersjuice&Style=plastic&label="Because+I+love+him."&color=8B0000) ![strider](https://i.ibb.co/6cBhqB5C/tumblr-be947ee4868a11c47603ea359cecd70d-fc948f4d-75.webp) 
 
-![strider](https://i.ibb.co/6cBhqB5C/tumblr-be947ee4868a11c47603ea359cecd70d-fc948f4d-75.webp) ${\textsf{\color{#FF0000} Heyy}}$ 
+${\textsf{\color{#FF0000} Hey}}$ 
 
-![strider](https://i.ibb.co/6cBhqB5C/tumblr-be947ee4868a11c47603ea359cecd70d-fc948f4d-75.webp) ${\textsf{\color{#FF0000} I'm a Dave Strider kin}}$ 
+${\textsf{\color{#FF0000} I'm a Dave Strider kin and HUGE Dave Strider fan}}$ 
 
 ${\textsf{\color{#FF0000} Im pansexual, asexual, genderfluid, and a minor}}$ <br>
 
-${\textsf{\color{#8B0000} Socials >>}}$
+${\textsf{\color{#FF0000} I only follow friends on this account}}$ 
 
-${\textsf{\color{#FF0000} Discord - Davestridersjuice}}$
+![appl](https://i.ibb.co/Bhp06nJ/tumblr-d563e0636285b3919ed8b477d9bbdcac-54f9afa9-75.webp)${\textsf{\color{#FF0000} Discord - Davestridersjuice}}$ ![appl](https://i.ibb.co/Bhp06nJ/tumblr-d563e0636285b3919ed8b477d9bbdcac-54f9afa9-75.webp)
 
-![appl](https://i.ibb.co/Bhp06nJ/tumblr-d563e0636285b3919ed8b477d9bbdcac-54f9afa9-75.webp) [Pinterest](https://www.pinterest.com/Davestridersjuice/)
+${\textsf{\color{#FF0000} Did I mention I liked Dave Strider?}}$ 
 
-${\textsf{\color{#FF0000} Discord - Davestridersjuice}}$
+![Hisdisk](https://i.ibb.co/QvF7ZYZB/tumblr-29d1296c88575de12025170097194f3d-02847c88-640.webp)
+
+
+
 
