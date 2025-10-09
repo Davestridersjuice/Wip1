@@ -7,7 +7,7 @@
   </a>
 </p>
 
-# Gifs/Images may break
+# Gifs/Images may break, try refreshing
 
 ![strider](https://i.ibb.co/6cBhqB5C/tumblr-be947ee4868a11c47603ea359cecd70d-fc948f4d-75.webp)
 ![](https://komarev.com/ghpvc/?username=Davestridersjuice&Style=plastic&label="Because+I+love+him."&color=8B0000) 
