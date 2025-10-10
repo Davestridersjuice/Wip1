@@ -27,7 +27,7 @@ ${\textsf{\color{#FF0000} Discord - Davestridersjuice}}$
 [Spotify](https://open.spotify.com/user/31374auufhmdwvnklou5a3aykoa4?si=fc4de630f88a49cf) 
 [Tumblr](https://www.tumblr.com/davestridersjuice)
 
-${\textsf{\color{#FF0000}and}}$ ${\textsf{\color{#0008000}@Ghosty-Trickster}}$ ${\textsf{\color{#FF0000}Is my alt account}}$ 
+${\textsf{\color{#FF0000}and @Ghosty-Trickster Is my alt account [Github]}}$ 
 
 ![squiggly](https://i.ibb.co/99WnzxvK/tumblr-05a9357b87923358fce542937971c0c6-595671df-400.webp)
 
