@@ -35,9 +35,7 @@ ${\textsf{\color{#FF0000} I'm a Dave Strider kin and HUGE Dave Strider fan}}$
 
 ${\textsf{\color{#FF0000} Im pansexual, asexual, genderfluid, and a minor}}$ <br>
 
-${\textsf{\color{#FF0000} Did I mention I like Dave Strider?}}$ 
-
-![Hisdisk](https://i.ibb.co/QvF7ZYZB/tumblr-29d1296c88575de12025170097194f3d-02847c88-640.webp)
+${\textsf{\color{#FF0000} Did I mention I like Dave Strider?}}$
 
 
 
