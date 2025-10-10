@@ -25,7 +25,7 @@ ${\textsf{\color{#FF0000} Discord - Davestridersjuice}}$
 [Spotify](https://open.spotify.com/user/31374auufhmdwvnklou5a3aykoa4?si=fc4de630f88a49cf) 
 [Tumblr](https://www.tumblr.com/davestridersjuice)
 
-${\textsf{\color{#FF0000} @Xielian-3000 Is my alt account}}$ 
+${\textsf{\color{#FF0000} @Ghosty-Trickster Is my alt account}}$ 
 
 ${\textsf{\color{#FF0000} I'm a Dave Strider kin and HUGE Dave Strider fan}}$ 
 
