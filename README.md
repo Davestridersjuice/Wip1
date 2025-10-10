@@ -1,5 +1,7 @@
 <div align="center">
 <img src="https://files.catbox.moe/1m62rf.gif">
+
+![Squiggly](https://i.ibb.co/99WnzxvK/tumblr-05a9357b87923358fce542937971c0c6-595671df-400.webp)
   
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -25,7 +27,9 @@ ${\textsf{\color{#FF0000} Discord - Davestridersjuice}}$
 [Spotify](https://open.spotify.com/user/31374auufhmdwvnklou5a3aykoa4?si=fc4de630f88a49cf) 
 [Tumblr](https://www.tumblr.com/davestridersjuice)
 
-${\textsf{\color{#FF0000} @Ghosty-Trickster Is my alt account}}$ 
+${\textsf{\color{#FF0000}and}}$ ${\textsf{\color{#0008000}@Ghosty-Trickster}}$ ${\textsf{\color{#FF0000}Is my alt account}}$ 
+
+![squiggly](https://i.ibb.co/99WnzxvK/tumblr-05a9357b87923358fce542937971c0c6-595671df-400.webp)
 
 ${\textsf{\color{#FF0000} I'm a Dave Strider kin and HUGE Dave Strider fan}}$ 
 
