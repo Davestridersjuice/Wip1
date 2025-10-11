@@ -15,9 +15,9 @@
 ![](https://komarev.com/ghpvc/?username=Davestridersjuice&Style=plastic&label="Because+I+love+him."&color=8B0000) 
 ![strider](https://i.ibb.co/6cBhqB5C/tumblr-be947ee4868a11c47603ea359cecd70d-fc948f4d-75.webp) 
 
-<sub>${\textsf{\color{#FF0000}HUGE Dave Strider fan}}$ <br>
+${\textsf{\color{#FF0000}HUGE Dave Strider fan}}$ <br>
 
-<sub>${\textsf{\color{#FF0000} Im pansexual, asexual, genderfluid, and a minor}}$
+${\textsf{\color{#FF0000} Im pansexual, asexual, genderfluid, and a minor}}$
 
 ${\textsf{\color{#FF0000} Socials real quick :}}$ 
 
