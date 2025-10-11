@@ -24,14 +24,13 @@ ${\textsf{\color{#FF0000} Socials real quick :}}$
 ![appl](https://i.ibb.co/Bhp06nJ/tumblr-d563e0636285b3919ed8b477d9bbdcac-54f9afa9-75.webp)
 ${\textsf{\color{#FF0000} Discord - Davestridersjuice}}$
 ![appl](https://i.ibb.co/Bhp06nJ/tumblr-d563e0636285b3919ed8b477d9bbdcac-54f9afa9-75.webp) </br>
+${\textsf{\color{#FF0000}and @Ghosty-Trickster Is my alt account [Github]}}$
 
 [Ata](https://chickenbootyweezer.atabook.org/)
 [Pinterest](https://www.pinterest.com/Davestridersjuice/) 
 [Roblox](https://www.roblox.com/users/3939267694/profile) 
 [Spotify](https://open.spotify.com/user/31374auufhmdwvnklou5a3aykoa4?si=fc4de630f88a49cf) 
-[Tumblr](https://www.tumblr.com/davestridersjuice)
-
-${\textsf{\color{#FF0000}and @Ghosty-Trickster Is my alt account [Github]}}$ 
+[Tumblr](https://www.tumblr.com/davestridersjuice) 
 
 ![squiggly](https://i.ibb.co/99WnzxvK/tumblr-05a9357b87923358fce542937971c0c6-595671df-400.webp)
 
