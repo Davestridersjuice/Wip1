@@ -23,7 +23,7 @@
 
 ${\textsf{\color{#FF0000} Im pansexual, asexual, genderfluid, and a minor}}$
 
-${\textsf{\color{#FF0000} Socials real quick :}}$ 
+${\textsf{\color{#d80200} Socials real quick :}}$ 
 
 ![appl](https://i.ibb.co/Bhp06nJ/tumblr-d563e0636285b3919ed8b477d9bbdcac-54f9afa9-75.webp)
 ${\textsf{\color{#FF0000} Discord - Davestridersjuice}}$
