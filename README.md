@@ -11,6 +11,8 @@
 
 # Gifs/Images may break, try refreshing
 
+<sub>${\textsf{\color{#d80200} I love coding on github}}$ 
+
 <sub>[Ata](https://chickenbootyweezer.atabook.org/)
 [Pinterest](https://www.pinterest.com/Davestridersjuice/) 
 [Roblox](https://www.roblox.com/users/3939267694/profile) 
